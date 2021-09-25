@@ -6,5 +6,3 @@
 - 📫 How to reach me? via email - janputo76@gmail.com or discord - Lubie_Kapuste#7381 
 - 💼 My LinkedIn - https://www.linkedin.com/in/JanPuto/
 - 📚 I’m still studying in high school 😬
-
-<br />
