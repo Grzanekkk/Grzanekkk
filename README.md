@@ -4,5 +4,5 @@
 - 🌱 I’m currently learning c++ and Unreal Engine 4 ⚙️
 - 💞️ I’m currently looking for an internship in GameDev Company⌨️
 - 📫 How to reach me? via email - janputo76@gmail.com or discord - Lubie_Kapuste#7381 
-- 💼 My LinkedIn - https://www.linkedin.com/in/JanPuto/
+- 💼 My LinkedIn - https://www.linkedin.com/in/janputo/
 - 📚 I’m still studying in high school 😬
